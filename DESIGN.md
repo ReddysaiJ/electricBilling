@@ -2,7 +2,7 @@
 
 By **Reddysai Jonnadula**
 
-Video overview: <[URL HERE](https://dai.ly/k2miJ6KO2xIKooBG6EC)>
+Video overview: <[URL HERE](https://dai.ly/k2miJ6KO2xIKooBG6E)>
 
 ---
 
